@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Bachelor Of Mass communication
 - 💞️ I’m looking to collaborate on social issues
 - 📫 How to reach me .+255694342209
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: I love you
+- ⚡ Fun fact: Animation
 
 <!---
 Mrpresenter31/Mrpresenter31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
